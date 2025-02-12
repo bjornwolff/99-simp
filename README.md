@@ -1,2 +1,2 @@
 # 99-simp
-Game voor school
+Luca is verliefd op Hellen. Hellen is echter de dochter van de duivel en is totaal niet geïnteresseerd in Luca, om van Luca af te komen zegt ze dat hij niet sterk/mannelijk genoeg is om met haar te hebben. Om zichzelf te bewijzen stuurt ze hem op avontuur dit doet ze in de hoop dat Luca hierdoor komt te overleiden. Luca gaat naar zijn opa en die geeft hem zijn oude wapen en zijn oude boosterschoenen. Hierdoor kan Luca dubbel jumpen en schieten. 
